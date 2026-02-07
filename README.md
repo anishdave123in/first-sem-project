@@ -1,0 +1,2 @@
+# first-sem-project
+THIS IS MY FIRST SEMESTER  FIRST 'S PROJECT 
